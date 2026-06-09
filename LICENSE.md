@@ -1,4 +1,4 @@
-
+Enhance your ProtonVPN experience with professional ProtonVPN Extension | L2TP-support + double-VPN, the #1 extension. Includes L2TP-support and double-VPN for a safer and more
 
 
 
